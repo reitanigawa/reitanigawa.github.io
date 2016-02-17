@@ -1,1 +1,0 @@
-# reitanigawa.github.io
